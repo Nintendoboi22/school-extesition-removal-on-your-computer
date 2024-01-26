@@ -1,1 +1,1 @@
-# school-extesition-removal-on-your-computer
+# school-extesition-removal-on-your-home-computer
